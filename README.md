@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Moosa Raza
+- 👀 I’m interested in learning new technologies.
+- 🌱 I’m currently learning object oriented programming. 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a bad taste in music.
+- To reach me visit my profile.
+- PEACE:)
